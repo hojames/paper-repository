@@ -1,2 +1,2 @@
 # paper-repository
-all of my recent work - last updated 2/11/2021
+some recent work - needs updating! please get in touch if there is anything on my CV you would like information on (that may not be up to date here). 
